@@ -1,4 +1,4 @@
-Hey I'm Miku 
+**Hey! I'm Miku** 
 
 ![Miku](https://telegra.ph/file/bb72abae72519c0c1c850.jpg)
 
